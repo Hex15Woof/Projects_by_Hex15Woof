@@ -1,1 +1,1 @@
-bruh this is reposistory for my projects - hex15woof
+bruh this is reposistory for my projects
